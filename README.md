@@ -1,4 +1,4 @@
 # mcconsulting
 Thanks SS!
-Thanks Eddie!
+Thanks Eddie and suckas!
 Michael Chang Consulting
